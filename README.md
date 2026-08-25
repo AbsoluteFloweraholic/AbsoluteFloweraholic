@@ -5,12 +5,8 @@
 Don't be scared to talk to me, i'm always open for conversations. 
 
 DNI:
-- Trollers
-- Edaters
-- Mean people
-- And more what u can find on my strawpage
+- 𝑝𝑙𝑠 𝑐ℎ𝑒𝑐𝑘 𝑚𝑦 𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒 𝑓𝑜𝑟 𝑑𝑛𝑖'𝑠.𝑇ℎ𝑎𝑛𝑘 𝑦𝑜𝑢! 
 
-When i'm busy, please don't interact.
 
 <img width="636" height="900" alt="image" src="https://github.com/user-attachments/assets/6ac9040b-6b51-4e3e-9abf-87d1881e17e4" />
 
