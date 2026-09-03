@@ -1,3 +1,12 @@
+<details>
+  <summary>View Source Code</summary>
+
+  ```bash
+  git commit -m "Cool feature added"
+  git push origin main
+  ```
+</details>
+
 "Stop pretending your someone else, its not worth it. Just be yourself thats more important."
 
 <img width="1199" height="673" alt="image" src="https://github.com/user-attachments/assets/282f3f81-cfd2-4d69-975a-4cc4f45eb6eb" />
