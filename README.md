@@ -1,4 +1,15 @@
-"Stop pretending your someone else, its not worth it. Just be yourself thats more important."
+“Ashes to ashes. Dust to dust.
+We are but fleeting vessels of flesh, destined to return to the earth from which we were wrought.
+
+So let the dead be buried, the wicked be judged, and the remnants of their existence be scattered to the wind.
+
+For in the end, there is no glory. No immortality. No mercy.
+
+Only dust.
+
+And to dust, we shall return.
+
+Amen.”
 
 <img width="1199" height="673" alt="image" src="https://github.com/user-attachments/assets/282f3f81-cfd2-4d69-975a-4cc4f45eb6eb" />
 
