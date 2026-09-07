@@ -1,26 +1,26 @@
-“Ashes to ashes. Dust to dust.
-We are but fleeting vessels of flesh, destined to return to the earth from which we were wrought.
+“𝓐𝓼𝓱𝓮𝓼 𝓽𝓸 𝓪𝓼𝓱𝓮𝓼. 𝓓𝓾𝓼𝓽 𝓽𝓸 𝓭𝓾𝓼𝓽.
+𝓦𝓮 𝓪𝓻𝓮 𝓫𝓾𝓽 𝓯𝓵𝓮𝓮𝓽𝓲𝓷𝓰 𝓿𝓮𝓼𝓼𝓮𝓵𝓼 𝓸𝓯 𝓯𝓵𝓮𝓼𝓱, 𝓭𝓮𝓼𝓽𝓲𝓷𝓮𝓭 𝓽𝓸 𝓻𝓮𝓽𝓾𝓻𝓷 𝓽𝓸 𝓽𝓱𝓮 𝓮𝓪𝓻𝓽𝓱 𝓯𝓻𝓸𝓶 𝔀𝓱𝓲𝓬𝓱 𝔀𝓮 𝔀𝓮𝓻𝓮 𝔀𝓻𝓸𝓾𝓰𝓱𝓽.
 
-So let the dead be buried, the wicked be judged, and the remnants of their existence be scattered to the wind.
+𝓢𝓸 𝓵𝓮𝓽 𝓽𝓱𝓮 𝓭𝓮𝓪𝓭 𝓫𝓮 𝓫𝓾𝓻𝓲𝓮𝓭, 𝓽𝓱𝓮 𝔀𝓲𝓬𝓴𝓮𝓭 𝓫𝓮 𝓳𝓾𝓭𝓰𝓮𝓭, 𝓪𝓷𝓭 𝓽𝓱𝓮 𝓻𝓮𝓶𝓷𝓪𝓷𝓽𝓼 𝓸𝓯 𝓽𝓱𝓮𝓲𝓻 𝓮𝔁𝓲𝓼𝓽𝓮𝓷𝓬𝓮 𝓫𝓮 𝓼𝓬𝓪𝓽𝓽𝓮𝓻𝓮𝓭 𝓽𝓸 𝓽𝓱𝓮 𝔀𝓲𝓷𝓭.
 
-For in the end, there is no glory. No immortality. No mercy.
+𝓕𝓸𝓻 𝓲𝓷 𝓽𝓱𝓮 𝓮𝓷𝓭, 𝓽𝓱𝓮𝓻𝓮 𝓲𝓼 𝓷𝓸 𝓰𝓵𝓸𝓻𝔂. 𝓝𝓸 𝓲𝓶𝓶𝓸𝓻𝓽𝓪𝓵𝓲𝓽𝔂. 𝓝𝓸 𝓶𝓮𝓻𝓬𝔂.
 
-Only dust.
+𝓞𝓷𝓵𝔂 𝓭𝓾𝓼𝓽.
 
-And to dust, we shall return.
+𝓐𝓷𝓭 𝓽𝓸 𝓭𝓾𝓼𝓽, 𝔀𝓮 𝓼𝓱𝓪𝓵𝓵 𝓻𝓮𝓽𝓾𝓻𝓷.
 
-Amen.”
+𝓐𝓶𝓮𝓷.”
 
 <img width="1199" height="673" alt="image" src="https://github.com/user-attachments/assets/282f3f81-cfd2-4d69-975a-4cc4f45eb6eb" />
 
 Don't be scared to talk to me, i'm always open for conversations. 
 
-DNI:
-- Trollers
-- Impolite people
-- Racists
-- Copy cats
-- 𝑝𝑙𝑠 𝑐ℎ𝑒𝑐𝑘 𝑚𝑦 𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒 𝑓𝑜𝑟 my other 𝑑𝑛𝑖'𝑠. 𝑇ℎ𝑎𝑛𝑘 𝑦𝑜𝑢! 
+𝓓𝓝𝓘:
+- 𝓣𝓻𝓸𝓵𝓵𝓮𝓻𝓼
+- 𝓘𝓶𝓹𝓸𝓵𝓲𝓽𝓮 𝓹𝓮𝓸𝓹𝓵𝓮
+- 𝓡𝓪𝓬𝓲𝓼𝓽𝓼
+- 𝓒𝓸𝓹𝔂 𝓬𝓪𝓽𝓼
+- 𝓹𝓵𝓼 𝓬𝓱𝓮𝓬𝓴 𝓶𝔂 𝓼𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮 𝓯𝓸𝓻 𝓶𝔂 𝓸𝓽𝓱𝓮𝓻 𝓓𝓝𝓘'𝓼, 𝓽𝓱𝓪𝓷𝓴 𝔂𝓸𝓾!
 
 
 <img width="636" height="900" alt="image" src="https://github.com/user-attachments/assets/6ac9040b-6b51-4e3e-9abf-87d1881e17e4" />
