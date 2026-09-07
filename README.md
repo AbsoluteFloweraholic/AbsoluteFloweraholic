@@ -13,7 +13,7 @@
 
 <img width="1199" height="673" alt="image" src="https://github.com/user-attachments/assets/282f3f81-cfd2-4d69-975a-4cc4f45eb6eb" />
 
-Don't be scared to talk to me, i'm always open for conversations. 
+𝓓𝓸𝓷'𝓽 𝓫𝓮 𝓼𝓬𝓪𝓻𝓮𝓭 𝓽𝓸 𝓽𝓪𝓵𝓴 𝓽𝓸 𝓶𝓮, 𝓲'𝓶 𝓪𝓵𝔀𝓪𝔂𝓼 𝓸𝓹𝓮𝓷 𝓯𝓸𝓻 𝓬𝓸𝓷𝓿𝓮𝓻𝓼𝓪𝓽𝓲𝓸𝓷𝓼. 
 
 𝓓𝓝𝓘:
 - 𝓣𝓻𝓸𝓵𝓵𝓮𝓻𝓼
