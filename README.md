@@ -11,7 +11,7 @@
 
 𝓐𝓶𝓮𝓷.”
 
-<img width="663" height="209" alt="image" src="https://github.com/user-attachments/assets/5741048b-b7ad-4bd8-9abb-8956c9ea7602" />
+<img width="736" height="415" alt="53550683062976187" src="https://github.com/user-attachments/assets/2c93259d-d8cd-4fe6-8660-0b0301f04b0e" />
 
 
 𝓓𝓸𝓷'𝓽 𝓫𝓮 𝓼𝓬𝓪𝓻𝓮𝓭 𝓽𝓸 𝓽𝓪𝓵𝓴 𝓽𝓸 𝓶𝓮, 𝓲'𝓶 𝓪𝓵𝔀𝓪𝔂𝓼 𝓸𝓹𝓮𝓷 𝓯𝓸𝓻 𝓬𝓸𝓷𝓿𝓮𝓻𝓼𝓪𝓽𝓲𝓸𝓷𝓼. 
@@ -24,7 +24,8 @@
 - 𝓹𝓵𝓼 𝓬𝓱𝓮𝓬𝓴 𝓶𝔂 𝓼𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮 𝓯𝓸𝓻 𝓶𝔂 𝓸𝓽𝓱𝓮𝓻 𝓓𝓝𝓘'𝓼, 𝓽𝓱𝓪𝓷𝓴 𝔂𝓸𝓾!
 
 
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/cb48d6d5-4c79-4f59-b3a5-f4a94c160770" />
+<img width="736" height="566" alt="Piero" src="https://github.com/user-attachments/assets/454417bf-91a8-4ef2-b81a-e217fa7aef24" />
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jkslm3htqoqzgt5qnkancqbn6q&cover_image=true&theme=default&show_offline=false&background_color=7a0000&interchange=true&profanity=false&hide_remaster=false&bar_color=000000)](https://spotify-github-profile.kittinanx.com/api/view?uid=31jkslm3htqoqzgt5qnkancqbn6q&redirect=true)
