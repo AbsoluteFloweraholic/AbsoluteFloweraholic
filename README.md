@@ -11,7 +11,8 @@
 
 𝓐𝓶𝓮𝓷.”
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/4b9b9e0e-e088-40f3-bf18-c03321c1c34b" />
+
+<img width="888" height="424" alt="image" src="https://github.com/user-attachments/assets/536d5026-b5eb-4baf-b4ed-f841124a79f1" />
 
 
 
@@ -25,7 +26,9 @@
 - 𝓹𝓵𝓼 𝓬𝓱𝓮𝓬𝓴 𝓶𝔂 𝓼𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮 𝓯𝓸𝓻 𝓶𝔂 𝓸𝓽𝓱𝓮𝓻 𝓓𝓝𝓘'𝓼, 𝓽𝓱𝓪𝓷𝓴 𝔂𝓸𝓾!
 
 
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/53a24997-e68b-4108-97d0-daa04fb9721c" />
+
+<img width="498" height="280" alt="image" src="https://github.com/user-attachments/assets/8f5187bc-cca2-4d52-8239-58dcf8d44c3e" />
+
 
 
 
