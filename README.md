@@ -12,7 +12,9 @@
 𝓐𝓶𝓮𝓷.”
 
 
-<img width="888" height="424" alt="image" src="https://github.com/user-attachments/assets/536d5026-b5eb-4baf-b4ed-f841124a79f1" />
+
+<img width="828" height="409" alt="image" src="https://github.com/user-attachments/assets/dad378c9-34bf-4952-8116-a4dfe99059c3" />
+
 
 
 
@@ -27,9 +29,7 @@
 
 
 
-<img width="498" height="280" alt="image" src="https://github.com/user-attachments/assets/8f5187bc-cca2-4d52-8239-58dcf8d44c3e" />
-
-
+<img width="721" height="201" alt="image" src="https://github.com/user-attachments/assets/ae6ffe08-562e-42c7-84ff-d80ed0b98f0c" />
 
 
 
